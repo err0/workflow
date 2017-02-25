@@ -1,4 +1,4 @@
-# After the Event!
+**After the Event!**
 
 Data Rescue is a coalition and a movement. When the event is over, and exhaustion is setting in over a couple of rounds... there is still work to do. 
 
